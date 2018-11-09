@@ -1,4 +1,4 @@
-## Welcome to the repo Imperial's Space Society 
+## Welcome to the repo(s) of Imperial's Space Society 
 
 This page is under construction 
 
